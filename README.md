@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lilith-thedarkhorserises
+- 👋 Hi, I’m @DwitypriyaPal
 - 👀 I’m interested in Art, design, and creation
 - 🌱 I’m currently learning Visual Communication Design
 - 💞️ I’m looking to collaborate on Game design, Digital art, Branding
